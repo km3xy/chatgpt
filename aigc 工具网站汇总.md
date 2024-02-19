@@ -46,7 +46,7 @@ https://openai.mbmzone.com/mbm-gpt/?inviteCode=2MGUSIPJ
 https://gitee.com/PlexPt/awesome-chatgpt-prompts-zh
 
 
-用这个神奇的聊天工具，我的生活变得更加便利了。不需要魔法，不需要海外手机号码，来试试吧:Chataa。点击使用:
+用这个神奇的聊天工具，我的生活变得更加便利了。不需要魔法，不需要海外手机号码，来试试吧:Chataa。点击使用:收费价格高，但是chataa里的chatgp3.5免费不限额，其他的都贵。
 
 2024 chatgpt 官方地址 及 咒语提示词 提取视频
 
@@ -113,7 +113,7 @@ https://openai.mbmzone.com/mbm-gpt/?inviteCode=2MGUSIPJ
 2024 chatgpt 官方地址 及 咒语提示词 提取视频
 https://gitee.com/PlexPt/awesome-chatgpt-prompts-zh
 
-用这个神奇的聊天工具，我的生活变得更加便利了。不需要魔法，不需要海外手机号码，来试试吧:Chataa。点击使用:chataa,收费价格高，胆是chataa里的chatgp3.5免费不限额，其他的都贵。
+用这个神奇的聊天工具，我的生活变得更加便利了。不需要魔法，不需要海外手机号码，来试试吧:Chataa。点击使用:chataa,收费价格高，但是chataa里的chatgp3.5免费不限额，其他的都贵。
 
 
 2024 chatgpt 官方地址 及 咒语提示词 提取视频
